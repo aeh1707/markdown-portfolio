@@ -1,0 +1,1 @@
+I'm intersted about new revolutinary technology, such as Blockchain, __Brain Computer Interfaces__, __AI__, __Self-driving cars__, I also love drawing and music, a movie that has intreseting story and *captures the imagination*.
